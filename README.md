@@ -1,1 +1,1 @@
-sandrinha domingos
+sandrinha domingo
